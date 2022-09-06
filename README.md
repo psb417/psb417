@@ -1,11 +1,13 @@
-# Ready  for adventure?............. Here are some of mine:
+# Ready for Adventure?............. Here are some of mine:
 
 **“Adventure is worthwhile in itself.”** <sub>― Amelia Earhart<sub>
 
-- Arkansas River
-- Whale Watching in Iceland
-- Hurricane Andrew
- 
+
+ | Event  | Location |
+| ------------- | ------------- |
+| Arkansas River | Colorado  |
+|  Whale Watching in Iceland  | Husavik |
+ | Hurricane Andrew | Miami, FL  |
 # Rafting Incident on the Arkansas River  
 ![_MG_3676](https://user-images.githubusercontent.com/112975225/188715602-df78a88a-c725-4345-b8f6-73491065633b.JPG)
 Here's a link to where you can take an Arkansas River tour: https://arkansasrivertours.com/
