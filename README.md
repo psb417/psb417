@@ -12,10 +12,11 @@ Here's a link to where you can take an Arkansas River tour: https://arkansasrive
 
  # Whale Watching in Iceland
   ![IMG_1257](https://user-images.githubusercontent.com/112975225/188718053-44082ca6-ae57-4165-9feb-7176e204ace3.JPG)
-
+Learn more about whale watching in Iceland https://husavikadventures.is/
+ 
  # Hurricane Andrew
   ![Tree](https://user-images.githubusercontent.com/112975225/188718838-ddf19564-d823-430b-a3c4-470480db1350.jpg)
-
+Here's some information on Hurricane Andrew https://www.weather.gov/news/220822-hurricane-andrews
   
 <!--
 **psb417/psb417** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
