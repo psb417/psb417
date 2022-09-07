@@ -1,3 +1,16 @@
+## Eric Booth
+I am finishing up here at RVCC and will be moving forward as a history major. 
+I started a non profit I began in 2020 with my friends. My hobbies include fishing,basketball and New York Sports – Knicks, Giants, Yankees
+
+
+![image](https://user-images.githubusercontent.com/112975225/188961877-c740a2e7-3184-416a-ba45-7a9edd8345dc.png)
+![image](https://user-images.githubusercontent.com/112975225/188961887-fb72a18d-0ec4-4b10-9f29-e69beec80317.png)
+![image](https://user-images.githubusercontent.com/112975225/188961897-d67e4c44-c58e-4772-8b43-bfe3cb617b78.png)
+
+
+
+
+
 # Ready for Adventure?............. Here are some of mine:
 
 **“Adventure is worthwhile in itself.”** <sub>― Amelia Earhart<sub>
