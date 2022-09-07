@@ -1,3 +1,4 @@
+
 ## Eric Booth
 I am finishing up here at RVCC and will be moving forward as a history major. 
 I started a non profit I began in 2020 with my friends. My hobbies include fishing,basketball and New York Sports – Knicks, Giants, Yankees
